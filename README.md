@@ -1,6 +1,6 @@
 # #✨ Hey there! I'm Bhavyashree Nandi
 
-### 📊 Aspiring Data Analyst | Electronics and Communication Engineering Graduate (2026)
+### 📊 Aspiring Data Analyst | Electronics and Communication Engineering
 
 *Turning data into insights, and insights into impact.*
 
